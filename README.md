@@ -22,4 +22,4 @@ According to the reports of *WHO, India faces a high burden of lifestyle disease
 
 ---
 
-Stay healthy, stay motivated with *omniX*!
+Stay healthy, stay motivated with *omniX*!!
